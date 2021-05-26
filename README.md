@@ -1,1 +1,1 @@
-The most incredible Red Velvet Cake with Cream Cheese Frosting is fluffy, soft, buttery and moist with the most perfect velvet texture! Super easy to make with a few tips and tricks for the best results! You will go crazy for a second slice!
+Hot Chocolate transformed into Lava Cakes with melted gooey marshmallow baked into the centre! All in a muffin pan and so easy to bake!
